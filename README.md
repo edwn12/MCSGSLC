@@ -1,3 +1,1 @@
-"# MCSGSLC" 
-"# MCSGSLC" 
-"# MCSGSLC" 
+Berikut jawaban mengenai Tugas GSLC saya, Terima kasih. 
